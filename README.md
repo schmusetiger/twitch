@@ -2,21 +2,21 @@
 - Thunfischsaft
 - Gurkenwasser
 - Wurstwasser
-- Rote Beete 
-- Pfirsich
+- Rote-Beete-Saft
+- Pfirsichsaft
 - Apfelsaft naturtrüb
 - Vitaminwasser
 - Ingwershot
 - Maggi
 - Rotweinessig
 - Eierlikör
-- Zitronensäure
-- Limettensäure 
+- Zitronensaftkonzentrat
+- Limettensaftkonzentrat
 - Sauerkrautsaft
 - Karottensaft
 - Sangria 
 - Waldmeister
-- Ficken
+- F*cken
 - Holunder Johannisbeere 
 - Gemüsebrühe 
 - Wurzelsaft

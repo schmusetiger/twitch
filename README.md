@@ -1,1 +1,32 @@
-# twitch
+# Auswahl an Shots
+- Thunfischsaft
+- Gurkenwasser
+- Wurstwasser
+- Rote Beete 
+- Pfirsich
+- Apfelsaft naturtrüb
+- Vitaminwasser
+- Ingwershot
+- Maggi
+- Rotweinessig
+- Eierlikör
+- Zitronensäure
+- Limettensäure 
+- Sauerkrautsaft
+- Karottensaft
+- Sangria 
+- Waldmeister
+- Ficken
+- Holunder Johannisbeere 
+- Gemüsebrühe 
+- Wurzelsaft
+- Marzipanlikör
+- Schokoladenlikör
+- Zimt-Apfel-Likör
+- Bratapfellikör
+- Feigenlikör
+- Lebkuchenlikör
+- Nuss-Nougat-Likör
+- Zimtlikör
+- Birnenlikör
+- Apfellikör

@@ -3,7 +3,6 @@
 - Gurkenwasser
 - Wurstwasser
 - Rote-Beete-Saft
-- Pfirsichsaft
 - Apfelsaft naturtrüb
 - Vitaminwasser
 - Ingwershot
@@ -14,7 +13,7 @@
 - Limettensaftkonzentrat
 - Sauerkrautsaft
 - Karottensaft
-- Sangria 
+- Sangrita 
 - Waldmeister
 - Buttermilch
 - F*cken
